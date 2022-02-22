@@ -1,4 +1,4 @@
-![pngegg (1)](https://user-images.githubusercontent.com/88346382/155041352-1bef4a26-2097-41bf-92d8-5679a88995a2.png)
+![1156488](https://user-images.githubusercontent.com/88346382/155140420-fa79da69-acdc-45c7-9c90-4a3c19f66340.png)
 
 
 - 🔭 I’m currently working on my portfolio
